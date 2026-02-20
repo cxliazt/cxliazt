@@ -7,6 +7,6 @@
 
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
-![Join Yumii ! ✦](https://github.com/user-attachments/assets/f1d80e1c-0d6b-4bdb-ab18-ea46b6487094)
+https://cdn.discordapp.com/attachments/1327855907136077875/1474221741818773605/download_2.jpg?ex=69990f7c&is=6997bdfc&hm=de4ffde3cc8b2cadc7cf0bb77c13e895cde1af70fc207c3167e7a8fa6a2725dd&
 
 ( art not mine !! )
